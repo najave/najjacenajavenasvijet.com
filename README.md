@@ -1,0 +1,2 @@
+# najjacenajavenasvijet.com
+gaserski
